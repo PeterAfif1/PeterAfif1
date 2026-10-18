@@ -18,6 +18,6 @@ I also play drums and violin, so a lot of what I build comes from things I wante
 
 ## Connect
 - 🌐 Portfolio: [peterafif.com](https://www.peterafif.com)
-- 💼 LinkedIn: [linkedin.com/in/peter-afif-4ba131264](https://www.linkedin.com/in/peter-afif-4ba131264/)
+- 💼 LinkedIn: [linkedin.com/in/peterafif](https://www.linkedin.com/in/peterafif/)
 - 📧 Email: peterafif19@gmail.com
 - 🥁 TikTok / YouTube: @afifdrums · Instagram: @peter_afif
